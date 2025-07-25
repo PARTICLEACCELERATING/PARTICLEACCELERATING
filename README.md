@@ -1,3 +1,7 @@
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=PARTICLEACCELERATING&style=plastic&color=yellowgreen&label=TeV">
+</p>
+
 <p>
 <img src="https://img.shields.io/badge/W3Schools-04AA6D?style=for-the-badge&logo=W3Schools&logoColor=white"> 
 <img src="https://img.shields.io/badge/CSS3-1572B6?style=for-the-badge&logo=css3&logoColor=white"> 
