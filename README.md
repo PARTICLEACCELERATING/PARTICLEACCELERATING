@@ -16,12 +16,14 @@
 
 			INT LIST !?!
 	➳ STOMACHBOOK ENJOYERS!!!! I LOEVS TOMACHBOOK !!!! im so normal about sotmahcbookkAAAAAAAHJHAGJHUISAJHALJDS
-	➳ phighting! fans
-	➳ dandys world fans
-	➳ bfdi/tpot fans
-	➳ ii fans
+	➳ NORMAL phighting! fans
+	➳ NORMAL dandys world fans
+	➳ NORMAL bfdi/tpot fans
+	➳ NORMAL ii fans
 	➳ reading enjoyers (?LMAO) (book fans ?? people who like reading ? idk.. )
 	➳ LMK FANS OMGAAHJAHJJGVASGASJH
+	➳ hermitcraft / life series fans !!!
+	➳ people who like music .. (?) ( im struggling here .. )
 			um ... idk what else ... JUST INT IM COOL PLEASE !!!
 
 			DNI LIST !
@@ -30,7 +32,7 @@
 	➳ ragebaiters / people who love drama / bullies / hateful people
 	➳ ship controversy talk
 	➳ just dont be weird 2 me please ...
-	➳ the REALLY WEIRD / HATEFUL parts of my fandoms PLSSS dni y'all are gross freaks and its not cool bro ..
+	➳ the REALLY WEIRD / HATEFUL parts of my fandoms PLSSS dni you're ruining the fandom name bro ...
 	➳ people who are nsfw / suggestive on the safe server I WILL THROTTLE YOU
 
 			THIN ICE !
