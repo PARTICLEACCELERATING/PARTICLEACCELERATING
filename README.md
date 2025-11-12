@@ -60,5 +60,5 @@
 	➳ iwc: interact with caution + care
 	➳ iwec: interact with extreme caution + care
 
-![](https://komarev.com/ghpvc/?username=GOODNIGHT+HYPNOPOMP&color=740432&style=plastic&label=stomachbook+enjoyers)
+![](https://komarev.com/ghpvc/?username=GOODNIGHT-HYPNOPOMP&color=740432&style=plastic&label=stomachbook+enjoyers)
 
