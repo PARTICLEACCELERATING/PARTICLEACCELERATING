@@ -59,3 +59,6 @@
 	➳ dniuc: do not interact unless close
 	➳ iwc: interact with caution + care
 	➳ iwec: interact with extreme caution + care
+
+![](https://komarev.com/ghpvc/?username=PARTICLEACCELERATING&color=740432&style=plastic&label=stomachbook+enjoyers)
+
