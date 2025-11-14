@@ -63,4 +63,5 @@
 	➳ iwec: interact with extreme caution + care
 
 ![](https://komarev.com/ghpvc/?username=GOODNIGHT-HYPNOPOMP&color=740432&style=plastic&label=stomachbook+enjoyers)
+##### how do people make friends here it's like everyone already has an established friend group bro ,, < / 3 
 
