@@ -31,9 +31,39 @@
 	➳ iwc: interact with caution + care
 	➳ iwec: interact with extreme caution + care
 	➳ int: interact freely!
+
+
+			BYI / ABT ME ! ? !
+	➳ IM A MINOR !! do NOT be sexual / suggestive to me .
+	➳ i make kms jokes + say the f slur (reclaimable fur me) ! if you do not like this PLEASE tell me !!!
+	➳ i mirror the attitude of people i talk to and stuff , like the way you talk; if you will be hyper to me i will be
+	to you etc etc  ! i also kinda steal phrases people say, like how "ok? ok!" is becoming more widespread, just like
+	 little language quirks you use that i think convey meaning in a way i also could use !
+	➳ in general i'm pretty high energy and excited ! i tend to talk in caps and also type long paragraphs , if you want
+	 me to chill a bit i will , pls just ask me, preferrably specifying like what exactly i'm doing thats overwhelming
+	 (the all caps, the long replies, etc) !!i am omniverted and most of the time social interactions make me 
+	 SUPER energetic/happy so this is why ! if i am more socially exhausted state (very rare fur me), i will probably
+	 still try and sound energetic but might be putting less energy into my responses.... idk how i act when i'm 
+	 socially exhausted tbh i kinda forget ...
+	➳ i call everyone bro/vro + comrade + dude + pookie + oomfie (if we're friended) !
+	➳ i make some typos on purrpose + also i type fast so i may make a lot , if you use a screen reader or struggle
+	 to read typos then lmk and i will try to type in an easier to (screen)read way !! :D
+	➳ it might come off like i'm super forgetful if you read everything but it is more like i'm very good at remembering
+	 things that have to do with interacting with people (like what we were previously talking about, what we usually talk
+	 about, if you are like higher energy or low energy, etc), its just moreso stuff about myself (how i react/behave in 
+	 everyday life) i forget , yah !
+	➳ im scared to interact first a lot,, if we're friends & i don't int first its because im scared NOT BECAUSE I HATE 
+	 YOU !!! im trying to get better at this so if i'm annoying/pestering yew .. PLS TELL ME !!!
+	➳ please interact with me... im so lonely... i literally do not have ANYONE i consistently talk to besides my brother
+	 and my mother ...
+	➳ DONT BE AFRAID TO INT FIRST EVEN IF ITS JUST LIKE A ' HI ' PLEASE !!
+	➳ i might not understand what you're saying sometimes .. i'm kinda mousebrained lwokey .. if my reply doesn't make 
+	 sense w/ what you said please tell me but also try and simplify it pls ..
+			!! if you want me to not do any of these things PLEASEPLSPLSPLSPLS TEL ME!!!!! i don't want to make anyone
+			uncomfortable !!
   
 
-			INT LIST !?! ( vaguely ordered in current interest level !)
+			INT LIST ! !! ( vaguely ordered in current interest level !)
 	➳ STOMACHBOOK ENJOYERS!!!! I LOVE STUMMYBOOK !!!!!!!!!!!!!!! 
 	➳ ii fans 
 	➳ phighting! enjoyers 
@@ -115,35 +145,6 @@
 	➳ under 14 ( what i mean by this is more a general maturity level, but if you happen to be younger but know you are
 	mature than you can int !
 		idk ,, i will hide you / block you if you're being weird !
-     
-			BYI ! ? !
-	➳ IM A MINOR !! do NOT be sexual / suggestive to me .
-	➳ i make kms jokes + say the f slur (reclaimable fur me) ! if you do not like this PLEASE tell me !!!
-	➳ i mirror the attitude of people i talk to and stuff , like the way you talk; if you will be hyper to me i will be
-	to you etc etc  ! i also kinda steal phrases people say, like how "ok? ok!" is becoming more widespread, just like
-	 little language quirks you use that i think convey meaning in a way i also could use !
-	➳ in general i'm pretty high energy and excited ! i tend to talk in caps and also type long paragraphs , if you want
-	 me to chill a bit i will , pls just ask me, preferrably specifying like what exactly i'm doing thats overwhelming
-	 (the all caps, the long replies, etc) !!i am omniverted and most of the time social interactions make me 
-	 SUPER energetic/happy so this is why ! if i am more socially exhausted state (very rare fur me), i will probably
-	 still try and sound energetic but might be putting less energy into my responses.... idk how i act when i'm 
-	 socially exhausted tbh i kinda forget ...
-	➳ i call everyone bro/vro + comrade + dude + pookie + oomfie (if we're friended) !
-	➳ i make some typos on purrpose + also i type fast so i may make a lot , if you use a screen reader or struggle
-	 to read typos then lmk and i will try to type in an easier to (screen)read way !! :D
-	➳ it might come off like i'm super forgetful if you read everything but it is more like i'm very good at remembering
-	 things that have to do with interacting with people (like what we were previously talking about, what we usually talk
-	 about, if you are like higher energy or low energy, etc), its just moreso stuff about myself (how i react/behave in 
-	 everyday life) i forget , yah !
-	➳ im scared to interact first a lot,, if we're friends & i don't int first its because im scared NOT BECAUSE I HATE 
-	 YOU !!! im trying to get better at this so if i'm annoying/pestering yew .. PLS TELL ME !!!
-	➳ please interact with me... im so lonely... i literally do not have ANYONE i consistently talk to besides my brother
-	 and my mother ...
-	➳ DONT BE AFRAID TO INT FIRST EVEN IF ITS JUST LIKE A ' HI ' PLEASE !!
-	➳ i might not understand what you're saying sometimes .. i'm kinda mousebrained lwokey .. if my reply doesn't make 
-	 sense w/ what you said please tell me but also try and simplify it pls ..
-			!! if you want me to not do any of these things PLEASEPLSPLSPLSPLS TEL ME!!!!! i don't want to make anyone
-			uncomfortable !!
 
 			Example of how i talk so you can judge if you may like interacting wit me !! all of this stuff may or may not be
 			in one message, but they are things i try and keep in mind when interacting !
