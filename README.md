@@ -13,7 +13,7 @@
 	➳ Busy : most likely im doing schoolwork/research, may be exhausted / have a low social battery (best way to tell is if i
 	 respond slowly to multiple interactions & like we're having a convo and i'm taking a while/not using caps/ not coming
 	 off as ecstatic / excited !)
-	➳ Online : Free 2 int, i'm most likely busy doing something in game like making ponies or @ docks game !! i may also
+	➳ Online : Free 2 int, i'm most likely doing something but am in game like making ponies or @ docks game, or i am offtab / doing something on another device but can see ponytown or i am checking ponytown very often !!
 	be offtab but am checking ponytown like every 1-3 minutes !
 		
   	w2i is encouraged , i might miss your message otherwise !!! also, i have a bad habit of closing my ponytown tab
@@ -23,13 +23,14 @@
 
 			
 			NAME ABBREVIATES + MEANINGS !!
-	➳ w2i: Whisper to interact !
-	➳ C + H: Cuddles and hiding behind me is okay + encouraged !! you can also cuddle in front of me i don't mind & love when 
+	➳ W2I: Whisper to interact !
+	➳ C+H: Cuddles and hiding behind me is okay + encouraged !! you can also cuddle in front of me i don't mind & love when 
 	 people do that !! ^_^
 	➳ dniuf: do not interact unless friend
 	➳ dniuc: do not interact unless close 
 	➳ iwc: interact with caution + care
 	➳ iwec: interact with extreme caution + care
+	➳ int: interact freely!
   
 
 			INT LIST !?! ( vaguely ordered in current interest level !)
@@ -144,14 +145,17 @@
 			!! if you want me to not do any of these things PLEASEPLSPLSPLSPLS TEL ME!!!!! i don't want to make anyone
 			uncomfortable !!
 
-			Example of how i talk so you can judge if you may like interacting wit me !!
-		example guy: " dude we had strawberry milk at school today .. that's my least favourite flavour </3</3.. PMO !!
-		me : I ALSO LOATHE STRAWBY MILK THE MOST OF ALL THE MILK FLAVOURS IVE TRIED (ive only tried regular, soy, almond,
+			Example of how i talk so you can judge if you may like interacting wit me !! all of this stuff may or may not be
+			in one message, but they are things i try and keep in mind when interacting !
+			
+		  example guy: " dude we had strawberry milk at school today .. that's my least favourite flavour </3</3.. PMO !!
+		  me : I ALSO LOATHE STRAWBY MILK THE MOST OF ALL THE MILK FLAVOURS IVE TRIED (ive only tried regular, soy, almond,
 		and chocly milk) (soy is my FAVFURRIT !!!), hopefully they have better milk next time oomf ! we never have any milk
 		besides soy and regular and very rarely chocolate, i am sharing wit you right neow trust ! (hands you cup of your
-		favurrit milk with a fun bendy straw) ! i generally try and combine three different methods into my responses in order
-		to maximise the options you have of saying in response; 1. responding to whatyou say with typically my opinion on it
-		and a comparable event from my life if possible, 2. if i can use an example from my life i would phrase it so that you
+		favurrit milk with a fun bendy straw) ! 
+		    explanation : i generally try and combine three different methods into my responses in order to maximise the 
+		options you have of saying in response; 1. responding to whatyou say with typically my opinion on it and a 
+		comparable event from my life if possible, 2. if i can use an example from my life i would phrase it so that you
 		can ask further questions or comment on it (or try and do this anywhere in the text not just an example, just giving
 		more details that you can ask about !) and 3. doing some sort of funny/silly "roleplay" kind of action (the "hands 
 		you cup of milk" moment)/a movement with my pony, mostly because i think it is fun and makes people happy and you 
@@ -161,5 +165,5 @@
 
 ![](https://komarev.com/ghpvc/?username=GOODNIGHT-HYPNOPOMP&color=740432&style=plastic&label=stomachbook+enjoyers)
 ##### how do people make friends here it's like everyone already has an established friend group bro ,, < / 3 
-_p.s. if you think you recognise me, yeah thats me_ (iykyk) (probably)
+_p.s. if you think you recognise me, yep thats me! the reason i made a new account was because there were just lots of memories on my old one and i wanted a new start !_ 
 
