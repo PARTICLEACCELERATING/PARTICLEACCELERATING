@@ -12,9 +12,11 @@
 	➳ Looking for roleplay : I never use this one .. maybe i'm in a roleplay on party island ?? or for looks ?.
 	➳ Busy : most likely im doing schoolwork/research, may be exhausted / have a low social battery (best way to tell is if i
 	 respond slowly to multiple interactions & like we're having a convo and i'm taking a while/not using caps/ not coming
-	 off as ecstatic / excited !)
-	➳ Online : Free 2 int, i'm most likely doing something but am in game like making ponies or @ docks game, or i am offtab / doing something on another device but can see ponytown or i am checking ponytown very often !!
-	be offtab but am checking ponytown like every 1-3 minutes !
+	 off as ecstatic / excited !), if im in a lower mood please keep in mind you can still int normally, its just more likely 
+	 that i will get annoyed/irritated and if i do i will probably leave the game, but dont be scared 2 int w/ me on ponytown 
+	 AT ALL PLS !!!
+	➳ Online : Free 2 int, i'm most likely doing something but am in game like making ponies or @ docks game, or i am offtab /
+	doing something on another device but can see ponytown or i am checking ponytown very often !!
 		
   	w2i is encouraged , i might miss your message otherwise !!! also, i have a bad habit of closing my ponytown tab
 	before seeing if i have any whispers so if you whisper me something and i don't respond and leave like 1-8 minutes
@@ -24,8 +26,8 @@
 			
 			NAME ABBREVIATES + MEANINGS !!
 	➳ W2I: Whisper to interact !
-	➳ C+H: Cuddles and hiding behind me is okay + encouraged !! you can also cuddle in front of me i don't mind & love when 
-	 people do that !! ^_^
+	➳ C+H: Cuddles and hiding behind me is okay + encouraged !! you can also cuddle in front of me, i don't mind & 
+	  i love when people do that !! ^_^
 	➳ dniuf: do not interact unless friend
 	➳ dniuc: do not interact unless close 
 	➳ iwc: interact with caution + care
@@ -34,60 +36,64 @@
 
 
 			BYI / ABT ME ! ? !
-	➳ IM A MINOR !! do NOT be sexual / suggestive to me .
-	➳ i make kms jokes + say the f slur (reclaimable fur me) ! if you do not like this PLEASE tell me !!!
-	➳ i mirror the attitude of people i talk to and stuff , like the way you talk; if you will be hyper to me i will be
-	to you etc etc  ! i also kinda steal phrases people say, like how "ok? ok!" is becoming more widespread, just like
-	 little language quirks you use that i think convey meaning in a way i also could use !
-	➳ in general i'm pretty high energy and excited ! i tend to talk in caps and also type long paragraphs , if you want
-	 me to chill a bit i will , pls just ask me, preferrably specifying like what exactly i'm doing thats overwhelming
-	 (the all caps, the long replies, etc) !!i am omniverted and most of the time social interactions make me 
-	 SUPER energetic/happy so this is why ! if i am more socially exhausted state (very rare fur me), i will probably
-	 still try and sound energetic but might be putting less energy into my responses.... idk how i act when i'm 
-	 socially exhausted tbh i kinda forget ...
+	➳ I'm a minor, do NOT be sexual / suggestive to/with/near me, please.
+	➳ i sometimes make kms jokes + say the f slur (reclaimable fur me) ! if you do not like this PLEASE tell me !!!
 	➳ i call everyone bro/vro + comrade + dude + pookie + oomfie (if we're friended) !
 	➳ i make some typos on purrpose + also i type fast so i may make a lot , if you use a screen reader or struggle
-	 to read typos then lmk and i will try to type in an easier to (screen)read way !! :D
-	➳ it might come off like i'm super forgetful if you read everything but it is more like i'm very good at remembering
-	 things that have to do with interacting with people (like what we were previously talking about, what we usually talk
-	 about, if you are like higher energy or low energy, etc), its just moreso stuff about myself (how i react/behave in 
-	 everyday life) i forget , yah !
-	➳ im scared to interact first a lot,, if we're friends & i don't int first its because im scared NOT BECAUSE I HATE 
-	 YOU !!! im trying to get better at this so if i'm annoying/pestering yew .. PLS TELL ME !!!
-	➳ please interact with me... im so lonely... i literally do not have ANYONE i consistently talk to besides my brother
-	 and my mother ...
-	➳ DONT BE AFRAID TO INT FIRST EVEN IF ITS JUST LIKE A ' HI ' PLEASE !!
+	   to read typos then lmk and i will make my best effort to type in an easier to (screen)read way !! :D
+	➳ i tend to get very scared to interact with people even if they are friends and we talk a lot , this usually happens
+	   when we haven't talked in more than a few days (even if i have been offline for a few days) or you message me on 
+	   another site (like discord) and i havent replied in a day or two (most likely i lost track of time, or didnt know 
+	   how/have the energy to reply), i get fearful that you will hate me or look down on me in a negative light or 
+	   something like this (i know its illogical but i havent figured out a way to get over this yet), so i go longer and 
+	   longer without replying and then i end up ghosting people for months .. if i do this to you i am VERY sorry , but 
+	   pls know i do not mean any ill will / im not trying to avoid you or anything ..
+	➳ i mirror the attitude of people i talk to and stuff , like the way you talk; if you will be hyper to me i will be to you
+	  etc etc  ! i also kinda steal phrases people say, like how "ok? ok!" is becoming more widespread, just like little language
+	  quirks you use that i think convey meaning in a way i also could use ! its very fun ..
+	  		!! if you want me to not do any of these things PLEASEPLSPLSPLSPLS TEL ME!!!!! i don't want to make anyone
+			uncomfortable !! (pls also be as specific as you can so this does not happen again ) (if you are also scared to tell
+			me whatever it is to my face [i understand this .. i do this too..] you can send it to my strawpg anonymously & i will
+			not post it !)
+	
+	➳ DONT BE AFRAID TO INT FIRST EVEN IF ITS JUST LIKE A ' HI ' PLEASE !! 
 	➳ i might not understand what you're saying sometimes .. i'm kinda mousebrained lwokey .. if my reply doesn't make 
-	 sense w/ what you said please tell me but also try and simplify it pls ..
-			!! if you want me to not do any of these things PLEASEPLSPLSPLSPLS TEL ME!!!!! i don't want to make anyone
-			uncomfortable !!
+	 sense w/ what you said please tell me but also try and simplify it pls  !
   
 
-			INT LIST ! !! ( vaguely ordered in current interest level !)
-	➳ STOMACHBOOK ENJOYERS!!!! I LOVE STUMMYBOOK !!!!!!!!!!!!!!! 
-	➳ ii fans 
-	➳ phighting! enjoyers 
+			THINGS I LIKE ! !! ( vaguely ordered in current interest level !)
+		im going to be honest i have a super ultra mega TERRIBLE memory and so i forgor literally everything that 
+		happened in 90% of these medias, these are just things i know ive liked in the past and idk .. idk why im putting
+		them here if i dont remember them because we wouldnt be able to talk about them .. but i still want to put them here..
+		so uh keep that in mind i guess . !
+	➳ STOMACHBOOK !!!! I LOVE STUMMYBOOK !!!!!!!!!!!!!!! 
+	➳ captainsparklez i lobe you captainsparklez oh my golly . hit me up if yew want some captainsparkle Facts i have a note doc
+	  wit a bunch of them .. hes just always been something i like .. which is crazy because watchign him is kinda torturous 
+	  because he can be a BRICK sometimes LMAO ?? but I LOVE WATCHING HIM it makes me so Hapy.. coughs though i will say i havent
+	  seen anywhere near all his stuff , currently im watching ragnamod and 
+	➳ ii  (i havent watched s4 because im scared itll make me hate ii and its like a super mega comfort show for me..)
+	➳ phighting!  
+	➳ dandy world  
+	➳ mcsr (lowkey mainly feinberg and hbg though ) (and rakrep!)
+	➳ hfjone . Oh hfjone how i love you so... 
+	➳ LMK  OMGAAHJAHJJGVASGASJH!!!!!
+	➳ bfdi/tpot !!!
+	➳ the stanley parable !
 	➳ reading enjoyuers ( ????...) (THINKMAXXERS ?.../hj)
 		idk how 2 put this one, specifically not based on certain reading fandoms, but like people who enjoy thinking about
-		 specifically the themes/motifs/(general literary devices)/ what the books MEAN !!!! like WHY did the author put THIS 
-		 ??? or OOOH IM READING THIS AND I THINK THIS IS FORESHADOWING OMG ?? , things like that !! like feel free 2 talk to
-		 me about something like this in a book you're reading even if i don't know it !! [also this could not even HAVE to 
-		 be related to books, like just this "style" of things in a favourite media of yours !!] 
-	➳ dandy world enjoyers 
-	➳ hfjone . Oh hfjone how i love you so... 
-	➳ LMK FANS OMGAAHJAHJJGVASGASJH!!!!!
+		specifically the themes/motifs/(general literary devices)/ what the books MEAN !!!! like WHY did the author put THIS 
+		??? or OOOH IM READING THIS AND I THINK THIS IS FORESHADOWING OMG ?? , things like that !! like feel free 2 talk to
+		me about something like this in a book you're reading even if i don't know it !! [also this could not even HAVE to 
+		be related to books, like just this "style" of things in a favourite media of yours !!] 
 	➳ hermitcraft / life series fans !
-	➳ bfdi/tpot fans enjoyers !!!
-	➳ the stanley parable enjoyers !
 	➳ people who like music .. . yep ! (?...)
 		like if yew have any song recs... hit me up!! can't guarantee i'll listen to them sometime this decade but rest 
 		 assured i do have a list i put them all on and fully intend to listen to them all ! i also have listened to a 
 		 lot of songs (8.6k total ahaha...) so if you want some recs feel free 2 ask, but i considering i am very forgetful i 
 		 may not be able to give you very many if its something more complex ,,
-		
-	** specific book fandoms of mine !** (listed in order of like how much i remember/what i recently read !)
+	** specific books ive read of mine !** (listed in order of like how much i remember/what i recently read !)
 		➳ ALL charlotte mcconaghy books (wild dark shore, migrations, once there were wolves) 
-		 please ENUINELY consider reading these.  pls . if you are able to enjoy reading, or even jsut if you don't absolutely 
+		 please GENUINELY consider reading these.  pls . if you are able to enjoy reading, or even jsut if you don't absolutely 
 		 loathe having to read they are SO. fucking good and i would attribute reading these to teaching me how to actually 
 		 critically think about books. they're GOATED . HOWEVER !!! they do also contain triggering topics !! i would recommend
 		 looking at doesthedogdie.com to find them, or if you don't want to be "spoiled" (?) for everything but rather your 
@@ -102,13 +108,12 @@
 		 could figure it out from there, a fear/triggered by knives / weapons, & i can't think of others but uhm.. it 
 		 all depends just ask !!! i want like EVERYONE to be able to read these books because they are AMAZING so i want 
 		 to make that as possible for everyone !!
-		 
 		➳ the poisonwood bible by barbara kingsolver 
-			currently reading this one, it is VERY good so far and i havent read other kingsolver stuff but ive ehard she is 
-			also a very good writer so check her stuff out !!! i know it doesn't sound like i have much to say about this one 
-			but its because most of my Thoughts About Books come after ive read most/all of the book so thats why, but this
-			book is just BEAUTIFULLY written so far like i LOVE her writing style its SO AMAZING !!!
-			
+			currently reading this one, it is VERY good so far ! it might seem like a more daunting book / dense / idk hard to 
+			read if you enjoy lighter/funner fiction, and while there are certainly dark moments and themes there is genuinely a 
+			lot of funny things in this book so i recommend you read it !! i know it doesn't sound like i have much to say about
+			this one but its because most of my Thoughts About Books come after ive read most/all of the book, but this
+			book is just BEAUTIFULLY written so far like i LOVE her writing style its SO AMAZING !!!	
 		➳ keeper of the lost cities by shannon messenger
 			oh keeper oh keeper.. on the one hand yay fun magial girl fun fantasy book series !! honestly a very fun read 
 			if you don't want to be thinking deeply about it, but it still has things that certainly Make you think ,, like 
@@ -119,21 +124,22 @@
 			in general i have read this one very recently so i basically remember everything (like every event/character) 
 			and could have good conversations about it methinks !!!! also #tiertice4life. and quinlin and alden .and della 
 			and livvy. #why are there so many pining queers pining for people who are MARRIED ? WHAT IS THIS TOMFOOLERY /j!!
-			
 		➳ hollow kingdom; remarkably bright creatures
 		➳ all wings of fire (not graphic novels)
 		➳ warrior cats series prophecies begin, the new prophecy, power of 3
-		all of percy jackson and the olympians (not graphic novels), all heros of olympus, magnus chase, and trials of apollo;
-		 fablehaven & dragonwatch & 5 kingdoms;
+		➳ all of percy jackson and the olympians (not graphic novels), all heros of olympus, magnus chase, and trials of apollo;
+		 fablehaven & dragonwatch & 5 kingdoms
 		➳ the serafina series
-		➳ like the first three books from the last dragon chronicles
+		➳ like the first three books from the last dragon chronicles ..
 		➳ & guardians of ga'hoole ( special shoutout to guardians of gahoole btw... my first book series i ever read... ive 
-		also reread the full series over 14 times .. !	) (i literally love it SO much .)	
+		also reread the full series over 14 times .. !	) (i literally love it SO much .) (I FUCKING LOVE YOU GUARDIANS OF 
+		GAHOOLE .)	
 
 			DNI LIST !
 	➳ vivzie supporters / actively supporting someone you know is harmful
 	➳ bigoted (homophobic, transphobic, racist, ablist, sexist, fatphobic, etcetc)
 	➳ ragebaiters / people who love drama / bullies / hateful people
+	➳ like .. knowingly causing people harm and  unwilling to change for the better
 	➳ ship controversy talk
 	➳ just dont be weird 2 me please ...
 	➳ the REALLY WEIRD / IMMATURE / HATEFUL parts of my fandoms PLS dni you're ruining the fandom name bro ...
@@ -143,26 +149,9 @@
 			THIN ICE !
 	➳ helluva boss / hazbin hotel fans
 	➳ under 14 ( what i mean by this is more a general maturity level, but if you happen to be younger but know you are
-	mature than you can int !
+	mature than you can int ! i have always been on the younger side and definitely understand this so i get yew trust)
 		idk ,, i will hide you / block you if you're being weird !
 
-			Example of how i talk so you can judge if you may like interacting wit me !! all of this stuff may or may not be
-			in one message, but they are things i try and keep in mind when interacting !
-			
-		  example guy: " dude we had strawberry milk at school today .. that's my least favourite flavour </3</3.. PMO !!
-		  me : I ALSO LOATHE STRAWBY MILK THE MOST OF ALL THE MILK FLAVOURS IVE TRIED (ive only tried regular, soy, almond,
-		and chocly milk) (soy is my FAVFURRIT !!!), hopefully they have better milk next time oomf ! we never have any milk
-		besides soy and regular and very rarely chocolate, i am sharing wit you right neow trust ! (hands you cup of your
-		favurrit milk with a fun bendy straw) ! 
-		    explanation : i generally try and combine three different methods into my responses in order to maximise the 
-		options you have of saying in response; 1. responding to whatyou say with typically my opinion on it and a 
-		comparable event from my life if possible, 2. if i can use an example from my life i would phrase it so that you
-		can ask further questions or comment on it (or try and do this anywhere in the text not just an example, just giving
-		more details that you can ask about !) and 3. doing some sort of funny/silly "roleplay" kind of action (the "hands 
-		you cup of milk" moment)/a movement with my pony, mostly because i think it is fun and makes people happy and you 
-		can interact with the roleplay part if you want, but also if you don't know what to say to my other two things 
-		but do know how to respond to this roleplay part you can !!!
-	  
 
 ![](https://komarev.com/ghpvc/?username=GOODNIGHT-HYPNOPOMP&color=740432&style=plastic&label=stomachbook+enjoyers)
 ##### how do people make friends here it's like everyone already has an established friend group bro ,, < / 3 
